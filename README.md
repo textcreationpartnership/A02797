@@ -35,24 +35,28 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-An apologie or defence of the watch-vvord, against the virulent and seditious ward-vvord published b
+
+1. TO THE CHRISTIAN READER.
+
 #####Body#####
 
-1. Resistance to the first Encounter about the manifold blessings, from God, through her Maiesties happie Raigne, powred vpon this Land.
+1. AN APOLOGIE OR DEFENCE OF THE WATCH-VVORD.
 
-1. Resistance to the second Encounter, about some absurd Principles of the Papists.
+    _ Resistance to the first Encounter about the manifold blessings, from God, through her Maiesties happie Raigne, powred vpon this Land.
 
-1. Resistance to the third Encounter, about her Maiesties marueilous deliuerances from dangers, in Queene Maries time, and since.
+    _ Resistance to the second Encounter, about some absurd Principles of the Papists.
 
-1. Resistance to the fourth Encounter, concerning Bishop Gardiner, and Cardinall Allen.
+    _ Resistance to the third Encounter, about her Maiesties marueilous deliuerances from dangers, in Queene Maries time, and since.
 
-1. Resistance to the fift Encounter, concerning the Iesuites.
+    _ Resistance to the fourth Encounter, concerning Bishop Gardiner, and Cardinall Allen.
 
-1. Resistance to the sixt Encounter about Recusants.
+    _ Resistance to the fift Encounter, concerning the Iesuites.
 
-1. Resistance to the seuenth Encounter, about the Pope.
+    _ Resistance to the sixt Encounter about Recusants.
 
-1. Resistance to the eight Encounter, touching the Spanish Nation, and the King.
+    _ Resistance to the seuenth Encounter, about the Pope.
+
+    _ Resistance to the eight Encounter, touching the Spanish Nation, and the King.
 
 **Types of content**
 
